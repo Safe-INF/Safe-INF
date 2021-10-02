@@ -1,0 +1,5 @@
+- Hi, I’m @Safe-INF
+- I’m interested in coding, music, animation and art
+- I’m currently learning coding and animation (and a little bit of art)
+- I’m looking to collaborate on the vs Darkness mod
+- How to reach me . . . I LIED, THERE IS NO WAY :troll:
